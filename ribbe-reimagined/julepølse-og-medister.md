@@ -24,6 +24,17 @@ Bruk ferdigstekt ribbe sammen med julepølse og medister til en rustikk gryte. R
 3. Hell over eplemost og la det småkoke noen minutter. Rør inn fløte og sennep, og la sausen tykne.
 4. Juster krydderet. Server gryten direkte fra pannen med potetmos, potetstappe eller grovt brød.
 
+## Saus fra stekesjy
+
+- 2 ss ribbefett/stekesjy
+- 1 ss hvetemel
+- 1 dl kraft eller vann
+- Soyasaus, salt og pepper etter smak
+
+1. Smelt ribbefett i panne, rør inn hvetemel og la det frese lett til det får farge.
+2. Spe med kraft og la småkoke til sausen tykner. Smak til med soyasaus, salt og pepper.
+3. Hell sausen i gryten med julepølse, medister og ribbe rett før servering for å binde saften og gi ekstra smak.
+
 ## Tips
 
 - Gryten tåler godt et hvileslag på lav varme, slik at smakene får satt seg.
