@@ -1,6 +1,6 @@
 # MatOppskrifter – ribbe-reimagined
 
-Dokumenterer kreative måter å bruke restemat fra ferdigstekt ribbe. Hver oppskrift har ingredienser, fremgangsmåte og tips for å gjøre kjøkkenjobben mest mulig praktisk.
+Dokumenterer kreative måter å bruke restemat fra ferdigstekt ribbe. Hver oppskrift har ingredienser, fremgangsmåte og tips for å gjøre kjøkkenjobben mest mulig praktisk, og er beregnet på ca. 4 porsjoner.
 
 ## Innhold
 

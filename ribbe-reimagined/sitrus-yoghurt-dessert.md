@@ -2,6 +2,8 @@
 
 En lett dessert som bruker en liten rest av svoren for sprøhet sammen med frisk yoghurt og sitrus. Hold mengden svor moderat – det skal gi kontrast, ikke dominere.
 
+Porsjoner: 4
+
 ## Ingredienser
 
 - 3 dl tykk yoghurt (gresk eller naturell)

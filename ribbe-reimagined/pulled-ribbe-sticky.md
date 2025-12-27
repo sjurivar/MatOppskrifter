@@ -2,6 +2,8 @@
 
 Pulled ribbe i små porsjoner gir en kjapp servering og en ny tekstur etter julemiddagen. Sausen er klebrig og balanserer det rike kjøttet.
 
+Porsjoner: 4
+
 ## Ingredienser
 
 - 500 g ferdigstekt ribbe, revet eller plukket i mindre biter

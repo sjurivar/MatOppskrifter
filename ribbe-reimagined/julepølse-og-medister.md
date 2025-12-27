@@ -2,6 +2,8 @@
 
 Bruk ferdigstekt ribbe sammen med julepølse og medister til en rustikk gryte. Retten holder varmen og er lett å tilpasse antall personer.
 
+Porsjoner: 4
+
 ## Ingredienser
 
 - 200 g julepølse, skiver

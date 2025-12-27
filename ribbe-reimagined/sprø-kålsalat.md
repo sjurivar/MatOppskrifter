@@ -2,6 +2,8 @@
 
 Kålsalat med rester av ribbe blir frisk og mettende. Bruk grove, sprø grønnsaker og la dressingen trekke godt inn før servering.
 
+Porsjoner: 4
+
 ## Ingredienser
 
 - 400 g finsnittet hvitkål

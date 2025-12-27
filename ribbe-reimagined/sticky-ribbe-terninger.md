@@ -2,6 +2,8 @@
 
 Restemat fra ferdigstekt ribbe får nytt liv i disse små, klissete terningene som er lette å varme og servere som fingermat eller sammen med en salat.
 
+Porsjoner: 4
+
 ## Ingredienser
 
 - 600–700 g ferdigstekt ribbe (inkludert svor), i terninger på ca. 2 cm
